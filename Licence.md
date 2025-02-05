@@ -1,0 +1,1 @@
+Copyright © mFriesen1024 2025, all rights reserved.
